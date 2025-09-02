@@ -43,7 +43,8 @@ _**Proverbs 2:20-22 (MSG)**_
 # Resources and Credits
 This material is genereated thanks to some extracts from following resources:
 
-- The Message (MSG), Copyright © 1993, 2002, 2018 by Eugene H. Peterson
+- [The Message (MSG)](https://www.biblegateway.com/versions/Message-MSG-Bible/),
+  Copyright © 1993, 2002, 2018 by Eugene H. Peterson
 
 ---
 
