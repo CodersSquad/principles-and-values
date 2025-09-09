@@ -38,7 +38,17 @@ _**Proverbs 2:20-22 (MSG)**_
 
 ---
 
+# Principle 3
 
+_Never walk away from someone who deserves help;_
+    _your hand is God’s hand for that person._
+_Don’t tell your neighbor “Maybe some other time”_
+    _or “Try me tomorrow”_
+    _when the money’s right there in your pocket._
+
+_**Proverbs 3:27-28 (MSG)**_
+
+---
 
 # Resources and Credits
 This material is genereated thanks to some extracts from following resources:
